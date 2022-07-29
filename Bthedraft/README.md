@@ -1,5 +1,5 @@
 Hi there 👋, My name is Brian Wodu Oluohu.
-Recent Graduate Developer looking to take the first step into a new career.
+Self-taught Developer looking to take the first step into a new career.
 
 💫 Little Bit More About Me
 INTERESTS:
